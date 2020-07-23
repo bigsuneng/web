@@ -1,2 +1,3 @@
-Language is the key to civilization
-## Welcome to Big Sun
+#### Welcome to Big Sun
+## New classes starting September. Register today!
+
