@@ -1,3 +1,3 @@
-#### Welcome to Big Sun
-## New classes starting September. Register today!
+# Welcome to Big Sun
+##### New classes starting September. Register today!
 
